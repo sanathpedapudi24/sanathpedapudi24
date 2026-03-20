@@ -1,4 +1,4 @@
-## Hi there 👋
+## hi everyone
 
 <!--
 **sanathpedapudi24/sanathpedapudi24** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
