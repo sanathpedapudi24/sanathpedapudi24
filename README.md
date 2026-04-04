@@ -1,6 +1,6 @@
 ## Hi, I'm Sanath 👋
 
-💻 Undergraduate in AI & Data Science at VRSEC  
+💻 Undergraduate in AI & Data Science 
 🚀 Working at two startups  
 🎬 Video editor  
 ⚙️ Customizing rice on Arch Linux  
