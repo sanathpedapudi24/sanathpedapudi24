@@ -2,8 +2,8 @@
 
 💻 Undergraduate in AI & Data Science
 
-🚀 Working at two startups  
-🎬 Video editor  
+🚀 Grindinggg (not here)  
+🎬 Video editor(ofc mention which is completely irrelavent)
 ⚙️ Customizing rice on Arch Linux  
 📄 Author of a few research papers  
 🔗 [LinkedIn](https://www.linkedin.com/sanath24)
